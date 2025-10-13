@@ -10,7 +10,7 @@ You have a home here
 You have a place to hide
 
 You're always welcome  
-And you're more than I can say
+And you're more than I can save
 
 The night you showed me I could sing  
 I praised the lord for drunken honesty  
