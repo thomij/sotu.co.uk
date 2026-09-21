@@ -2,7 +2,7 @@
 
 The lights that come in and out of my life  
 I'll write, I'll re-record these times  
-The grill in the meadow  
+The grill and the metal
 The ex's disease  
 Some passing of family  
 Frustration released  
