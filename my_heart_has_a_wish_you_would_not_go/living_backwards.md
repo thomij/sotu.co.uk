@@ -30,7 +30,7 @@ The fate of another
 The shit and the bones  
 All things considered  
 I walked with my hands held out  
-I walkted with my hands held out  
+I walked with my hands held out  
 To you and all that's good
 
 And I'm sure  
